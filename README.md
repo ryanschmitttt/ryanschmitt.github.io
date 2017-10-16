@@ -1,1 +1,0 @@
-# ryanschmitt.github.io
